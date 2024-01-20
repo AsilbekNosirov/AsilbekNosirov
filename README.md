@@ -1,4 +1,5 @@
-![0_T7nlzhJ0eOb6YyVy](https://github.com/AsilbekNosirov/AsilbekNosirov/assets/134529632/234bc473-d823-4ee9-95e9-85fa6cf9995a)
+![Uploading 0_de0IdiUSoJTwgsys.gif…]()
+
 
 # Hi there! 👋 I'm Asilbek
 
